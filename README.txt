@@ -1,7 +1,7 @@
 
 
 
-Here we see two cubes hanging out in the middle of nowhere. Blue Cube is dancing and having a real good time. However, Red Cube is fed up with Blue Cube's tomfoolery, and has finally had enough. Red Cube slams into Blue Cube at high speeds, blasting him into orbit. After a long ten second battle, Red Cube gives in and fades away, never to be seen again. 
+Here we see two cubes hanging out in the middle of nowhere. Blue Cube is dancing and having a real good time. However, Red Cube is fed up with Blue Cube's tomfoolery, and has finally had enough. Red Cube slams into Blue Cube at high speeds, blasting him into orbit. After a long ten second battle, Red Cube fades away from exhaustion, never to be seen again. 
 
 
 
